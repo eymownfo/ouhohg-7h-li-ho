@@ -1,2 +1,8 @@
-# ouhohg-7h-li-ho
-hshdhdj
+# client-url-bot
+- Discord sunucumuza gelmeyi unutmayın discord.gg/client
+
+
+
+
+
+
